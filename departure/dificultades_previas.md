@@ -1,2 +1,2 @@
-# Dificuldades previas
+# Dificultades previas
 ¿Cómo pudistes llegar aquí?
